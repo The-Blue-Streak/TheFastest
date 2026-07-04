@@ -6,7 +6,7 @@
 <p/> ⊹ 𝙁𝙪𝙣𝙠𝙮/𝘽𝙡𝙪𝙚 ᶻ 𝗓 𐰁 .ᐟ
 <p/> " 𝐇𝐨𝐰𝐝𝐲! 𝐦𝐲 𝐧𝐚𝐦𝐞 𝐢𝐬 𝐅𝐮𝐧𝐤𝐲, 𝐲𝐨𝐮 𝐜𝐚𝐧 𝐚𝐥𝐬𝐨 𝐜𝐚𝐥𝐥 𝐦𝐞 𝐁𝐥𝐮𝐞, 𝐢'𝐦 𝐚 𝐯𝐞𝐫𝐲 𝐡𝐮𝐠𝐞 𝐒𝐨𝐧𝐢𝐜 𝐟𝐚𝐧 𝐚𝐧𝐝 𝐚𝐥𝐬𝐨 𝐅𝐍𝐅 𝐟𝐚𝐧 𝐲𝐨𝐮 𝐜𝐚𝐧 𝐦𝐨𝐬𝐭𝐥𝐲 𝐬𝐞𝐞 𝐦𝐞 𝐚𝐫𝐨𝐮𝐧𝐝 𝐬𝐨𝐧𝐢𝐜 𝐳𝐨𝐧𝐞 𝐨𝐫 𝐣𝐮𝐬𝐭 𝐬𝐢𝐭𝐭𝐢𝐧𝐠 𝐭𝐡𝐞𝐫𝐞 𝐜𝐡𝐢𝐥𝐥𝐢𝐧𝐠 𝐦𝐚𝐤𝐢𝐧𝐠 𝐬𝐤𝐢𝐧𝐬!!, 𝐢𝐟 𝐲𝐨𝐮 𝐰𝐚𝐧𝐭 𝐭𝐨 𝐛𝐞 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐛𝐞 𝐰𝐞𝐥𝐜𝐨𝐦𝐞 𝐭𝐨 𝐭𝐚𝐥𝐤 𝐭𝐨 𝐦𝐞 𝐞𝐯𝐞𝐧 𝐭𝐡𝐨 𝐢 𝐡𝐚𝐯𝐞 𝐯𝐞𝐫𝐲 𝐥𝐨𝐰 𝐬𝐨𝐜𝐢𝐚𝐥 𝐛𝐚𝐭𝐭𝐞𝐫𝐲 𝐚𝐧𝐝 𝐢'𝐦 𝐦𝐨𝐬𝐭 𝐨𝐟 𝐭𝐡𝐞 𝐭𝐢𝐦𝐞𝐬 𝐯𝐞𝐫𝐲 𝐭𝐢𝐦𝐢𝐝 𝐰𝐢𝐭𝐡 𝐩𝐞𝐨𝐩𝐥𝐞- "
   
-  $\color{blue}{\scriptsize{DUDE NOBODY TOLD ME THE MCRIB WAS BACK I WOULD'VE GPOTTEN IT SO MUCH EARLYer}}$
+  $\color{blue}{\scriptsize{ ˚₊·—̳͟͞͞♡ \ Do\ I \ Need \ A \ Reason \ To \  Help \ Out \ a \ Friend? }}$
 
 
 <div class="blinkies">
