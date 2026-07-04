@@ -14,7 +14,7 @@
     <img src="brooke 1.gif" alt="Blinkie: trombone, text says boner">
     <img src="brooke 2.gif" alt="Blinkie: car, text says Speed Demon">
     <img src="brooke 3.gif" alt="Blinkie: Flower Power">
-    <img src="sonic" alt="Blinkie: destroy government property">
+    <img src="sonic.gif" alt="Blinkie: destroy government property">
     <img src="Brooke 7.gif" alt="Blinkie: callie fan!">
     <img src="brooke 6.gif" alt="Blinkie: i <3 purple guy">
     <img src="brooke 8.gif" alt="Blinkie: i always come back">
